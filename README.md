@@ -4,3 +4,5 @@ I'm a Technical Writer from Canada. I have experience creating and editing custo
 
  **[Contact Me Through LinkedIn](https://www.linkedin.com/in/danielle-whitfield-569257140/^)**
  
+ **[View My Portfolio](https://dwhitfield233.github.io/techwritingportfolio/^)**
+ 
